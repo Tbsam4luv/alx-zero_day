@@ -1,1 +1,2 @@
 love
+Gods plan
